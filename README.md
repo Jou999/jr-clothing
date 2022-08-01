@@ -12,4 +12,4 @@ INSTRUCIONES DE INSTALACIÓN:
 
 🥥 Creditos: 𝓙𝓸𝓾#0001
 
-📣 Discord: https://discord.gg/hPAKtcT3Gn
+📣 Discord: https://discord.gg/Ku5NanVp78
