@@ -10,6 +10,6 @@ INSTRUCIONES DE INSTALACIÓN:
 
 4- Meter en la carpeta el: JR-CLOTHING
 
-🥥 Creditos: 𝓙𝓸𝓾#0001
+🥥 Creditos: 𝓙𝓸𝓾#0001 / dp-cllothing
 
 📣 Discord: https://discord.gg/Ku5NanVp78
